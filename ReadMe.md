@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am studying Information Technology <br>I am in third year <br>I love to searching for Every thing <br>I have a lot of information <br>I am currently learning <br>I have secret project work on <br>them to make them perfect. <br>I love develop android apps.  <br>ask me about <br>Fun fact  
+👨🏻‍💻 I am studying Information Technology <br>I am in third year <br>I love to searching for Every thing <br>I am currently learning <br>I have secret project work on <br>them to make them perfect. <br>I love develop android apps.  <br>ask me about <br>Fun fact  
 
 
 ## 🌐 Socials:
